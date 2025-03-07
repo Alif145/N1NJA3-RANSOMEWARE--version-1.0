@@ -1,5 +1,5 @@
 # N1NJA3-RANSOMEWARE Version 1.0
-This Android Ransomeware Make By - (CAPTAIN-Zerox Uchiha) CEO Of Team BD Cyber Ninja َا إِلَٰهَ إِلَّا ٱللَّهُ مُحَمَّدٌ رَسُولُ ٱللَّ 
+This Ransomeware Make By - (CAPTAIN-Zerox Uchiha) CEO Of Team BD Cyber Ninja َا إِلَٰهَ إِلَّا ٱللَّهُ مُحَمَّدٌ رَسُولُ ٱللَّ 
 
 ![](https://f.top4top.io/p_3352gac2z2.png)
 
